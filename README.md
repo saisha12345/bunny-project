@@ -1,1 +1,1 @@
-https://saisha12345.github.io/bunny-tutorial/
+https://saisha12345.github.io/bunny-project/
